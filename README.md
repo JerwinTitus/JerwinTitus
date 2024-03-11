@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning b.tech (ai & ds)
 - 💞️ I’m looking to collaborate on python
-- 📫 How to reach me cal john jusvin
+- 📫 How to reach me call john jusvin
 - 😄 Pronouns: john - don
 - ⚡ Fun fact: john is the class topper
 
